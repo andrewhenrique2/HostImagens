@@ -20,3 +20,5 @@
 ![shop11](https://github.com/user-attachments/assets/f36a974e-9252-46c6-a679-87c18261b286)
 ![shop44](https://github.com/user-attachments/assets/2821d44c-4f1d-43ce-9075-1bcf1330d715)
 ![feed1](https://github.com/user-attachments/assets/0d59a886-5d41-4f13-b5a5-7023a47fac2b)
+![focus1](https://github.com/user-attachments/assets/4a4132dd-be30-4567-8546-ca4fa56bee55)
+![focus2](https://github.com/user-attachments/assets/9dca0483-028a-4493-884b-3830dd5876f0)
