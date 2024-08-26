@@ -1,0 +1,6 @@
+![Otkimg1](https://github.com/user-attachments/assets/750aa95d-f7f0-442d-96dd-ad3f4d594264)
+![Otkimg2](https://github.com/user-attachments/assets/74ee7ef5-4a33-4530-94d3-23ce26b67b09)
+![Otkimg3](https://github.com/user-attachments/assets/50d167ce-9b22-4f80-ab49-89cd5a13d77a)
+![Otkimg4](https://github.com/user-attachments/assets/7eb8658b-4d50-4a41-803e-3bf748cb39fb)
+![Otk5](https://github.com/user-attachments/assets/4e8c1ca8-00f2-413a-8253-3c670ac2b02c)
+![otk6](https://github.com/user-attachments/assets/a05a2823-66a7-4632-a4f4-d7023516d07f)
