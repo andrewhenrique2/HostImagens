@@ -25,3 +25,6 @@
 ![w11](https://github.com/user-attachments/assets/f5fa8539-14b8-4bb7-af2b-be569f439b7d)
 ![w1](https://github.com/user-attachments/assets/5887083e-fbca-4c0d-94c7-72fa56a36ebd)
 ![todo](https://github.com/user-attachments/assets/97095950-8677-4b25-881a-31cb2e400c0c)
+
+
+![foto-vertical-de-uma-feliz-mulher-de-pele-escura-com-cabelo-encaracolado_273609-15519](https://github.com/user-attachments/assets/de522840-36d1-45bb-855b-f21e1d8eba1e)
