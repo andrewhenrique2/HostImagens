@@ -28,3 +28,6 @@
 
 
 ![foto-vertical-de-uma-feliz-mulher-de-pele-escura-com-cabelo-encaracolado_273609-15519](https://github.com/user-attachments/assets/44d5dee1-516b-44d8-ab9b-1a6238a83935)
+![ladingpage-sage vercel app_](https://github.com/user-attachments/assets/c35393a2-f0a5-4428-9ec1-65187781a104)
+![iPhone-13-PRO-MAX-localhost (5)](https://github.com/user-attachments/assets/b7aaec98-9516-4f26-b851-ad683317f7ea)
+![localhost_3000_ (23)](https://github.com/user-attachments/assets/d6f3a631-d64f-4f2e-b094-7b7fe7442bb3)
